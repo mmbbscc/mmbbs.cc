@@ -5,8 +5,7 @@
 *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
 *[https://www.mmbbs.me](https://www.mmbbs.me)  
 
-### 发送任意内容到萌妹社区专用邮箱：
-#### 专用邮箱：mmbbscc@gmail.com
+### 网址专用邮箱：mmbbscc@gmail.com
 邮箱是最有效的方法之一，必须记录保存好，避免无法找到最新地址
 
 |
