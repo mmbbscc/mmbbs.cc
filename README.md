@@ -4,9 +4,9 @@
 ### 萌妹社区最近更新备用域名：
 ### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
 ### *[https://www.mmbbs.me](https://www.mmbbs.me)  
-### *[https://www.mm520.me](https://www.mm520.me)  
-### *[https://www.mm168.me](https://www.mm168.me)  
-### *[https://www.mm888.me](https://www.mm888.me)  
+### *[https://www.umav.cc](https://www.umav.cc)  
+### *[https://www.llav.cc](https://www.llav.cc)  
+### *[https://www.umav.me](https://www.umav.me)  
 ### *[https://www.mm999.me](https://www.mm999.me)  
 
 
