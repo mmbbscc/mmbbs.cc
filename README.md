@@ -1,6 +1,3 @@
-### 萌妹社区全球永久主域名：
-### [https://www.mmbbs.cc](https://www.mmbbs.cc)  
-
 ### 萌妹社区永久发布页：
 ### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
 ### *[https://www.mmbbs.me](https://www.mmbbs.me)  
