@@ -9,7 +9,7 @@
 ### *[https://www.mm999.me](https://www.mm999.me)  
 ### *[https://www.mm111.me](https://www.mm111.me)  
 
-### Telegram纸飞机：@mmbbscc(https://t.me/mmbbscc)
+### Telegram纸飞机：@mmbbscc([https://t.me/mmbbscc](https://t.me/mmbbscc))
 
 ### 网址专用邮箱：mmbbscc@gmail.com
 
