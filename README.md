@@ -1,13 +1,12 @@
 ### 萌妹社区永久发布页：
 ### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
-### *[https://www.mmbbs.me](https://www.mmbbs.me)  
 ### 萌妹社区最近更新备用域名：
-### *[https://www.umav.cc](https://www.umav.cc)  
+### *[https://www.umav.cc](https://www.umav.cc)   
+### *[https://www.umav.me](https://www.umav.me) 
 ### *[https://www.llav.cc](https://www.llav.cc)  
 ### *[https://www.llav.me](https://www.llav.me)  
-### *[https://www.umav.me](https://www.umav.me)  
-### *[https://www.mm999.me](https://www.mm999.me)  
-### *[https://www.mm111.me](https://www.mm111.me)  
+### *[https://www.vv666.me](https://www.vv666.me)  
+### *[https://www.vv999.me](https://www.vv999.me)  
 
 ### Telegram纸飞机：@mmbbscc([https://t.me/mmbbscc](https://t.me/mmbbscc))
 
