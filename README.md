@@ -1,8 +1,8 @@
 ### 萌妹社区永久发布页：
 ### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
 ### 萌妹社区最近更新备用域名：
-### *[https://www.cc666.me](https://www.cc666.me)  
-### *[https://www.ee666.me](https://www.ee666.me) 
+### *[https://www.kk666.me](https://www.kk666.me)  
+### *[https://www.gg666.me](https://www.gg666.me) 
 
 
 ### 网址专用邮箱：mmbbscc@gmail.com
