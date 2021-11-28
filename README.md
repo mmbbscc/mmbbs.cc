@@ -1,4 +1,5 @@
-### 萌妹社区新网址邮箱：mmbbscc@gmail.com
+### 萌妹社区新网址邮箱：
+### mmbbscc@gmail.com
 
 ### 萌妹社区永久发布页：
 ### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
