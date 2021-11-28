@@ -1,8 +1,8 @@
 ### 萌妹社区新网址邮箱：
 ### mmbbscc@gmail.com
 
-### 萌妹社区永久发布页：
-### *[https://www.mmbbs.cc](https://www.mmbbs.cc)  
+### 萌妹社区海外永久域名：
+### *[https://www.mmav.me](https://www.mmav.me)  
 ### 萌妹社区最近更新备用域名：
 ### *[https://www.kk666.me](https://www.kk666.me)  
 ### *[https://www.gg666.me](https://www.gg666.me) 
