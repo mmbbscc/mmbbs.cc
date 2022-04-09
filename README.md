@@ -1,5 +1,6 @@
 ### 萌妹社区新网址邮箱：
 ### mmbbscc@gmail.com
+邮箱是最有效的方法之一，必须记录保存好，避免无法找到最新地址
 
 ### 萌妹社区海外永久域名：
 ### *[https://www.mmav.me](https://www.mmav.me)  
