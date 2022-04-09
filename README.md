@@ -3,7 +3,12 @@
 
 ### 萌妹社区海外永久域名：
 ### *[https://www.mmav.me](https://www.mmav.me)  
-### 萌妹社区最近更新备用域名：
+### 萌妹社区（新版）：
+### *[https://www.mmav4.xyz](https://www.mmav4.xyz)  
+### *[https://www.mmav5.xyz](https://www.mmav5.xyz)   
+### *[https://www.mmav6.xyz](https://www.mmav6.xyz)   
+
+### 萌妹社区（旧版）：
 ### *[https://www.mmav2.com](https://www.mmav2.com)  
 ### *[https://www.mmav4.com](https://www.mmav4.com)   
 ### *[https://www.mmav5.com](https://www.mmav5.com)   
