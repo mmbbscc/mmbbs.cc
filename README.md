@@ -7,6 +7,9 @@
 ### *[https://www.mmav4.xyz](https://www.mmav4.xyz)  
 ### *[https://www.mmav5.xyz](https://www.mmav5.xyz)   
 ### *[https://www.mmav6.xyz](https://www.mmav6.xyz)   
+全新的资源，全新的速度
+部分视频资源高清播放
+所有视频提供下载功能
 
 ### 萌妹社区（旧版）：
 ### *[https://www.mmav2.com](https://www.mmav2.com)  
