@@ -6,6 +6,9 @@
 ### *[https://www.mmav.me](https://www.mmav.me)  
 
 ### 萌妹社区：
+### *[https://www.hh999.xyz](https://www.hh999.xyz) 
+### *[https://www.rr999.xyz](https://www.rr999.xyz)
+### *[https://www.vv999.xyz](https://www.vv999.xyz)
 ### *[https://www.mmav3.com](https://www.mmav3.com)  
 ### *[https://www.mmav4.com](https://www.mmav4.com)  
 如果以上网址都失效，请发送任意内容到以下邮箱！
