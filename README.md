@@ -6,9 +6,9 @@
 ### *[https://www.mmav.me](https://www.mmav.me)  
 
 ### 萌妹社区：
-### *[https://www.mmava.cc](https://www.mmavA.cc)
-### *[https://www.mmavb.cc](https://www.mmavB.cc)
-### *[https://www.mmavc.cc](https://www.mmavC.cc)
+### *[https://www.mmavA.cc](https://www.mmavA.cc)
+### *[https://www.mmavB.cc](https://www.mmavB.cc)
+### *[https://www.mmavC.cc](https://www.mmavC.cc)
 如果以上网址都失效，请发送任意内容到以下邮箱！
 
 ### 网址专用邮箱：mmbbscc@gmail.com
